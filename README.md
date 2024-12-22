@@ -2,7 +2,7 @@ About Me
 ================================
 Hello Im Mozzy Nice To Meet You (^///^)
 
-🎮 I like playing games such as CS2,R6Siege and many-many more
+🎮 I like playing games such as CS2,R6Siege and many-many more<e>
 💻 and like editing absurd video when im playing games
 ### Skills
 
